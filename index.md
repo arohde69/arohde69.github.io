@@ -6,3 +6,8 @@ spannende Sache.
 * Malen
 * Programmieren
 * Reiten
+
+As i said:
+
+> never give up
+> not now and not in the future
